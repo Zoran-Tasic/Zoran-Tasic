@@ -1,3 +1,5 @@
+[CV resume 11.2021 EN.pdf](https://github.com/Zoran-Tasic/Zoran-Tasic/files/7576826/CV.resume.11.2021.EN.pdf)
+
 👋 Hi, I’m @Zoran-Tasic
 
 I graduated from the Faculty of Mathematics at the Computer Science department and hold a master degree in computer science. 
